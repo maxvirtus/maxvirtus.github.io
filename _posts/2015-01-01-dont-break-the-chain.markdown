@@ -21,6 +21,7 @@ Good luck!
 Here's some more info:
 
 [http://www.reddit.com/r/theXeffect/](http://www.reddit.com/r/theXeffect/)
+
 [http://jamesclear.com/stop-procrastinating-seinfeld-strategy](http://jamesclear.com/stop-procrastinating-seinfeld-strategy)
 
 
